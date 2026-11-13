@@ -1,4 +1,4 @@
-# Awareness (This Repository will be left for personal view of this person, do not speak to me abt it!)
+# Awareness of Cody!!
 
 <details>
   <summary><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/320e0174-5bd2-48ee-9463-491d52d8767d" />
