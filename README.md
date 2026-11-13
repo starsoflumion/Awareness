@@ -11,7 +11,7 @@
 
 TW FOR MENTIONS OF s3x/r4pe, explicit ship style/contents AND mentions of genitals.
 
-Hello, i would like to state something against ̶t̶̶h̶̶e̶ ̶g̶̶o̶̶u̶̶r̶̶d̶̶y̶ ̶y̶̶u̶̶m̶̶e̶, ̶o̶̶r̶ ̶m̶̶a̶̶g̶̶g̶̶o̶̶t̶ (̶m̶̶4̶̶g̶̶g̶̶0̶̶t̶̶z̶̶z̶) A darkshipper that posts explicit content and seems to play ponytown aswell, being very similar to someone's account on here.
+Hello, i would like to state something against maggot/FrazzledFur on git
 
 Speaking of this person, i have a few things to say about them and this is for awareness purposes to be careful of wlf.
 
@@ -99,7 +99,10 @@ UPDATE ONE : 10/28/26
 
 ' coal is now trying to associate me with someone who draws gourdy porn, that is not me i only have ONE account which is thatdogcody_ and the only gourdy art on there is SFW gourdysona art https://www.tiktok.com/@thatdogcody_ for proof. please do not believe coal or whoever else is spreading these lies i feel sick knowing im being labelled as somebody who draws porn of my own s/o, i am not even old enough to draw that. '
 
-your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, personally i believe this is false, but that's just what i currently see.
+your style is the same, your ' S ' Style is shown on that too (written reversed), f/os are the same, profile is the same, labels meowist like you do, EVEN YOU STATED THAT IT WAS UR ACC BYE
+
+<img width="354" height="354" alt="image" src="https://github.com/user-attachments/assets/e34c11c4-b1c5-4be5-bfa9-84ff5acb4ee7" />
+
 <div align="left">
  
 (This part has been requested by one of cody's friends/or cody to be removed as of publishing their sfw art onto this read.me, the similarity of the "head" and "leaf" of gourdy might aswell be found in another awareness doc, thank you.)
